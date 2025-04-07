@@ -10,7 +10,7 @@ Sharing is Caring!
 
 --Randall
 
-## 👽 Fleeing Leftist Tyranies 👽
+## 👽 Fleeing Leftist Tyrannies 👽
 
 [Support us](https://ko-fi.com/randallnagy) by learning more!
 
